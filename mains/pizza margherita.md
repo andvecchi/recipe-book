@@ -16,7 +16,9 @@
 ## Instructions
 
 1. **Mix dough ingredients:**
-   - Add yeast and flour. Then water. Finally salt
+   - Add yeast and flour.
+   - Then water.
+   - Finally salt
 
 2. **Preheat Oven:**
    - Preheat your oven to 375°F (190°C).
