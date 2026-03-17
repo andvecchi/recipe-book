@@ -19,6 +19,9 @@
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
 
+## Important
+No meat allowed
+
 
 ## Instructions
 
